@@ -36,3 +36,9 @@ My meme was derived from the ["drowning man meme format"](https://memegenerator.
 - A caption at the top
 - Custom captions
 - My amazing creativity and artistic touch
+
+
+
+***Thanks for reading x2~***
+
+![See you!](https://media.giphy.com/media/35EsMpEfGHkVoHbNTU/giphy.gif)
