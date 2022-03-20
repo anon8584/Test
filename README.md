@@ -9,4 +9,5 @@
 What are you waiting for? Visit my webpage [here](https://naochi638.github.io/stats220/)!
 
 *Thanks for reading~* 🍧
+
 (All gifs used are royalty free :D)
