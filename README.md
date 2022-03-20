@@ -1,4 +1,4 @@
-## Hello and welcome to my stats220 assignment repository!
+## HELLO AND WELCOME TO MY STATS220 ASSIGNMENT REPOSITORY!
 ![welcome](https://media.giphy.com/media/Rjub7AIEIbXT0tzbr3/giphy.gif)
 
 ***This repository was made for my Uoa stats220 assigmnent 1. It consists of Part A of the assignment, and contains the following:***
